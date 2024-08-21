@@ -1,5 +1,5 @@
 # giza
-##member
+## member
 
 - Hegi spen
 - Jayy
