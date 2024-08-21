@@ -7,3 +7,5 @@
 Salam gacor dri barudak well
 Era Bismillah Wa Alhamdulillah
 
+ikan sepat ikan tonkol
+
