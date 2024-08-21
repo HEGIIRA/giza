@@ -5,4 +5,4 @@
 -Jayy
 
 Salam gacor dri barudak well
-Era Bismillah Wa ALHAMDULILLAH
+Era Bismillah Wa Alhamdulillah
