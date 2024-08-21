@@ -7,5 +7,5 @@ development
 
 Salam gacor dri barudak well
 Era Bismillah Wa Alhamdulillah
-bismillah riki masuk islamm
+bismillah riki masuk islam
 
