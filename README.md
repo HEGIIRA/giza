@@ -1,8 +1,10 @@
 # giza
-## member
+development
+##member
 
-- Hegi spen
-- Jayy
+-Hegi spen
+-Jayy
 
 Salam gacor dri barudak well
+Era Bismillah Wa Alhamdulillah
 
